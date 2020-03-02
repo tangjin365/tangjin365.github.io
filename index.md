@@ -3,5 +3,5 @@
 ### 目前这里还什么都没有……
 
 ### 与我联系
-# e-mail：tangjin365@qq.com
-# weibo:weibo.com/tangjin365
+# E-mail：tangjin365@qq.com
+# weibo: weibo.com/tangjin365
